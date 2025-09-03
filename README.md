@@ -5,7 +5,7 @@
 현재 **다양한 상품 개발**을 통해 저만의 디지털 브랜드를 만들어가고 있는
  **디지털 크리에이터 아무말**입니다.
 
-📸 **Instagram**: [@amumal_lab](https://www.instagram.com/amumal.studio)
+📸 **Instagram**: [@amumal.studio](https://www.instagram.com/amumal.studio)
 
 ---
 
